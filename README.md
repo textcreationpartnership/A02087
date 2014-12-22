@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Meditations and disquisitions upon the Lords prayer. By Sr. Richard Baker, KnightBaker, Richard, Sir
+〈2 pages missing〉sweetest Influence: for by it, the feare which is due, to the greatnesse of your Ma
+1. To my loving and learned friend, and sometime Compupil at Oxford, Sr. RICHARD BAKER, Knight.
+
 #####Body#####
-Meditations and disquisitions upon the Lords prayer. By Sr. Richard Baker, KnightBaker, Richard, Sir
+HE ARE O HEAVENS; HEARKEN Esa. 1.1. O EARTH; Our Saviour vouchsafes to be our Schoolemaster, and mea
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
